@@ -6,4 +6,5 @@ the best ways are:
 - read
 - pray god
 - code
+thank you!
 
